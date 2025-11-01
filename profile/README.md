@@ -1,4 +1,4 @@
-# Castos Coupon Codes October 2025 — 20% Off (Verified)
+# Castos Coupon Codes November 2025 — 20% Off (Verified)
 
 Castos is kicking off the new year with an exciting offer — a limited-time **20% off on all plans!**
 
@@ -22,7 +22,7 @@ Castos also makes it easy to **republish podcast content on YouTube**, expanding
 
 ---
 
-## Latest Castos Coupon Codes 2025
+## Latest Castos Coupon Codes Nov 2025
 
 If you want to save on your Castos subscription, you’re in luck! Here are some of the latest and most popular coupon codes:
 
